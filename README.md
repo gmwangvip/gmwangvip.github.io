@@ -1,2 +1,0 @@
-# gmwangvip.github.io
-VIP
